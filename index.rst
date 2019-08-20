@@ -16,7 +16,7 @@ With both filtered and cyclonic central vacuum cleaners there is the option of a
 
 Many people find the cleaning of a canister to be a dusty task, even though a central vacuum cleaners will hold a lot more dirt than a regular vacuum and will need to be emptied only infrequently.
 
-- Source :
+- Source : 
 
 https://www.hometips.com/central_vacuum_systems.html
 
